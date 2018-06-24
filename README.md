@@ -1,1 +1,1 @@
-# easilyconfused.github.io
+# otherconfusedpeople.github.io
